@@ -1,4 +1,4 @@
-# 
+# Enhance Vegas Pro for PC | Vegas Pro for Windows with vip Vegas Pro for PC | Vegas Pro for Windows Script | multi-cam-editing + green-screen-removal, the #1 script. Includes
 
 
 
